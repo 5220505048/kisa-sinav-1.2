@@ -1,1 +1,0 @@
-# kisa-sinav-1.2
